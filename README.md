@@ -1,1 +1,1 @@
-# Muhammadqodir
+# mustaqil dars
